@@ -7,6 +7,6 @@
 - 💞️ I’m looking to collaborate on my huge dick
 
 - 📫 Everything associated with me:
-○ Discord • unjak#6938
-○ VK • @mactepctpanoha
-○ Playlist • open.spotify.com/playlist/2ORCgwCYZMmmTOrFdWRsg5?si=57b7535247474948
+- Discord • unjak#6938
+- VK • @mactepctpanoha
+- Playlist • open.spotify.com/playlist/2ORCgwCYZMmmTOrFdWRsg5?si=57b7535247474948
