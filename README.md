@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning nothing
 
-- 💞️ I’m looking to collaborate on my huge dick
+- 💞️ I’m looking to collaborate with my huge dick
 
 - 📫 Everything associated with me:
 - Discord • unjak#6938
