@@ -1,12 +1,12 @@
-- 👋 Hi, I’m @unjak
+- 👋 Hi, I’m хуяк
 
 - 👀 I’m interested in idfk
 
-- 🌱 I’m currently learning nothing
+- 🌱 I’m currently learning пизда размножение хуй проникновение
 
-- 💞️ I’m looking to collaborate with my huge dick
+- 💞️ I’m looking to collaborate with твой папаша
 
-- 📫 Everything associated with me:
-- Discord • unjak#6938
-- VK • @mactepctpanoha
+- 📫 Everything associated with me (not everything, clearly):
+- Discord • unjak#0399
+- VK • [jecum](https://vk.com/jecum)
 - Playlist • open.spotify.com/playlist/2ORCgwCYZMmmTOrFdWRsg5?si=57b7535247474948
